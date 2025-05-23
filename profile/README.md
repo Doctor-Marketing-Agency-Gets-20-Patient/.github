@@ -1,4 +1,5 @@
 # Lost Patients? A Doctor Marketing Agency Fixes That 🩺🔧 
+
 ## If You’re Not Investing in Your Online Presence, You’re Falling Behind  
 
 ### Meet Dr. Patel: A Dedicated Physician Struggling to Stay Relevant  
@@ -36,7 +37,7 @@ Dr. Patel knew he had to make a change. He needed help—but not just any help. 
 
 ## 💡 The Turning Point: Partnering with Intellius Medical  
 
-After researching, Dr. Patel partnered with **Intellius Medical**, a specialized doctor marketing agency.  
+After researching, Dr. Patel partnered with **Intellius Medical**, a specialized [doctor marketing agency](https://www.intelliusmedical.com/).  
 
 They conducted a thorough audit and outlined a customized plan to transform his online visibility.
 
